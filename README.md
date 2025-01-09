@@ -1,5 +1,5 @@
 # niuniu
-牛牛棋牌游戏大厅代码出售，有通比牛牛，二人牛牛，火拼牛牛，炸金花多个棋牌游戏。产品稳定线上运营。联系TG：@xuzongbin001
+牛牛棋牌游戏大厅代码出售，有通比牛牛，二人牛牛，火拼牛牛，炸金花多个棋牌游戏。产品稳定线上运营。联系Telegram：@xuzongbin001或E-mail：taibaibaba1314@gmail.com
 
 
 ![火拼牛牛2](https://github.com/user-attachments/assets/7b04d4b5-1302-42ed-9e9e-591370264d9d)
